@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tazer900
+- 👀 I’m interested in ... GAMES, AND CODE THAT ALTERS YOUR FILES
+- 🌱 I’m currently learning ... BATCH, C++, AND JAVA
+- 💞️ I’m looking to collaborate on ... NOTHING AT THE MOMENT. I'LL UPDATE ON WHENEVER I NEED HELP!
+- 📫 How to reach me ... tazer9001@outlook.com
